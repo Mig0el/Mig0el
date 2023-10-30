@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mig0el
 - 👀 I’m interested in games
-- 🌱 I’m currently learning arts andstuff
+- 🌱 I’m currently learning arts and stuff
 - 💞️ I’m looking to collaborate on game of all times
 - 📫 How to reach me wattzap
 
