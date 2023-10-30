@@ -2,7 +2,7 @@
 - 👀 I’m interested in games
 - 🌱 I’m currently learning arts andstuff
 - 💞️ I’m looking to collaborate on game of all times
-- 📫 How to reach me wa
+- 📫 How to reach me wattzap
 
 <!---
 Mig0el/Mig0el is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
